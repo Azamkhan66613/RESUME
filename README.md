@@ -1,1 +1,1 @@
-# RESUME
+azammineee@gmail.com 
